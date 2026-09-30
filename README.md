@@ -2,7 +2,8 @@
 <img width="660" height="440" alt="Başlıksız233_20260930221302" src="https://github.com/user-attachments/assets/49c3423a-355b-44c4-9c42-61860d8ade36" />
 
 
-
+<p align="center">
+ $\color{#e3613f}{☆}$ <a href="https://lastgoodby3.atabook.org//">Ata</a> 
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣୨ৎ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
 
 <img width="220" height="220" alt="945173429bb729e0081e1c141a863aec" src="https://github.com/user-attachments/assets/48143f58-9f55-466c-b464-6d5de34a69e2" />
