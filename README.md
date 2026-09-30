@@ -10,7 +10,7 @@
 <img width="220" height="220" alt="2d330f7dd86b531ff487999b4ab6e690" src="https://github.com/user-attachments/assets/525eab6e-edcf-40ca-817a-a4d1f00ebcd1" />
 
 <p align="left">
- $\color{#e3613f}{☆}$ <a href="https://lastgoodby3.atabook.org//">Ata</a>$\color{#e3613f}{✿}$ <a href="https://squid0lvbe3.straw.page"
+ $\color{#e3613f}{☆}$ <a href="https://lastgoodby3.atabook.org//">Ata</a>$\color{#e3613f}{✿}$ <a href="https://squid0lvbe3.straw.page">Straw
 </p>
 <p align="center">
  $\color{#b94325}{ı LOVE cuddling random people (˶˃𐃷˂˶)}$
