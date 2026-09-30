@@ -9,7 +9,7 @@
 <img width="220" height="220" alt="cb29f1988009fad380c7dd44522da0bc" src="https://github.com/user-attachments/assets/bcda4d84-bd3b-451b-ac39-132e6833099f" />
 <img width="220" height="220" alt="2d330f7dd86b531ff487999b4ab6e690" src="https://github.com/user-attachments/assets/525eab6e-edcf-40ca-817a-a4d1f00ebcd1" />
 
-<p align="center">
+<p align="left">
  $\color{#e3613f}{☆}$ <a href="https://lastgoodby3.atabook.org//">Ata</a> 
  
 </p>
