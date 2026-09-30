@@ -1,10 +1,13 @@
-*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚ ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚
 
-<img width="660" height="371" alt="11df560eecc31aab5099c0e470c28e98" src="https://github.com/user-attachments/assets/96fa2437-ebe0-4bb1-9756-d222ec82e631" />
+
+<img width="1378" height="1378" alt="Başlıksız233_20260929201547" src="https://github.com/user-attachments/assets/446318fa-6921-4959-91c7-c1c5bfcedd9d" />
+
 
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣୨ৎ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
 
-<img width="220" height="220" alt="3efda3a3c2b61df456c2825169b02596" src="https://github.com/user-attachments/assets/9feb1b63-c6a5-405c-8274-921d19ef72c4" />  <img width="220" height="220" alt="174b96c1c8d834047d0596732dfd81f2" src="https://github.com/user-attachments/assets/3f3ad7d8-5607-4e1f-bd5f-525a64464ac2" /> <img width="220" height="220" alt="fb8c6fe3b825bc15173796eb5fffab49" src="https://github.com/user-attachments/assets/f9cd5b1d-02ce-4104-b76a-1d7b99d11642" />
+<img width="220" height="220" alt="945173429bb729e0081e1c141a863aec" src="https://github.com/user-attachments/assets/48143f58-9f55-466c-b464-6d5de34a69e2" />
+<img width="220" height="220" alt="cb29f1988009fad380c7dd44522da0bc" src="https://github.com/user-attachments/assets/bcda4d84-bd3b-451b-ac39-132e6833099f" />
+<img width="220" height="220" alt="2d330f7dd86b531ff487999b4ab6e690" src="https://github.com/user-attachments/assets/525eab6e-edcf-40ca-817a-a4d1f00ebcd1" />
 
 
 </p>
