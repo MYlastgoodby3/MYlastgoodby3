@@ -1,6 +1,6 @@
 
+<img width="660" height="660" alt="Başlıksız233_20260930221302" src="https://github.com/user-attachments/assets/49c3423a-355b-44c4-9c42-61860d8ade36" />
 
-<img width="660" height="660" alt="Başlıksız233_20260929201547" src="https://github.com/user-attachments/assets/446318fa-6921-4959-91c7-c1c5bfcedd9d" />
 
 
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣୨ৎ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
