@@ -15,6 +15,7 @@
 <p align="center">
  $\color{#b94325}{ı LOVE cuddling random people (˶˃𐃷˂˶)}$
 
+
 </p>
 <p align="center">
- $\color{#b94325}{just Cuddle me!! and dont talk ım fine with thatꨄ𖹭.ᐟ   }$               
+ $\color{#b94325}{just Cuddle me!! and dont talk ım fine with thatꨄ𖹭.ᐟ}$               
