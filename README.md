@@ -21,5 +21,5 @@
  $\color{#b94325}{just. Cuddle. me!! and. dont. talk. ım. fine. with. thatꨄ𖹭.ᐟ}$  
 
 <p align="left">
- ${<img width="278" height="250" alt="00pompom" src="https://github.com/user-attachments/assets/e68cd35d-9b63-44ad-8e03-bf23f4da1804" />}
-<p align="left"><img width="115" height="18" alt="ildywf" src="https://github.com/user-attachments/assets/04a8ff8f-a33c-45e7-96b2-05f56acc7245" />}$ 
+ <img width="278" height="250" alt="00pompom" src="https://github.com/user-attachments/assets/e68cd35d-9b63-44ad-8e03-bf23f4da1804" />
+<p align="left"><img width="115" height="18" alt="ildywf" src="https://github.com/user-attachments/assets/04a8ff8f-a33c-45e7-96b2-05f56acc7245" />
