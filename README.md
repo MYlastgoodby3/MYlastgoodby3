@@ -1,5 +1,4 @@
 
-<a href="https://hits.sh/github.com/MYlastgoodby3/"><img alt="Hits" src="https://hits.sh/github.com/MYlastgoodby3.svg?style=plastic&label=views&color=ea6556&logo=4chan"/></a>
 <img width="660" height="430" alt="Başlıksız233_20260930221302" src="https://github.com/user-attachments/assets/49c3423a-355b-44c4-9c42-61860d8ade36" />
 
 
