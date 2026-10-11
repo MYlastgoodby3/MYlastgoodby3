@@ -36,5 +36,4 @@
 <img width="99" height="56" alt="tumblr_ead4b8e42cc6dbe4f10d8c8bb2f1d03a_ec841ab6_100" src="https://github.com/user-attachments/assets/599b7bff-e2bb-483a-8da0-333ccac6dfb6" />
 <img width="99" height="56" alt="r_yoD_KWpLJsM81UChYh" src="https://github.com/user-attachments/assets/f705a1c9-1cfe-4cd0-8df6-8cae1e0caf12" />
 <img width="99" height="60" alt="pompompurin" src="https://github.com/user-attachments/assets/097641d6-8fab-4144-8d49-8e54a54af866" />
-<img width="99" height="56" alt="k15" src="https://github.com/user-attachments/assets/400d01f0-980f-414b-923e-9ea2f5225532" />
 
