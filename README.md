@@ -22,9 +22,9 @@
  $\color{#b94325}{just. Cuddle. me!! and. dont. talk. ım. fine. with. thatꨄ𖹭.ᐟ}$  
 
 <p align="left">
- <img width="278" height="250" alt="00pompom" src="https://github.com/user-attachments/assets/e68cd35d-9b63-44ad-8e03-bf23f4da1804" /> <img width="278" height="250" alt="Ekran görüntüsü 2026-10-16 232856" src="https://github.com/user-attachments/assets/adb82cbb-17c6-44b2-a17b-d80b2b1c65bf" />
-<p align="left">
+ <img width="278" height="250" alt="00pompom" src="https://github.com/user-attachments/assets/e68cd35d-9b63-44ad-8e03-bf23f4da1804" /> <img width="278" height="250" alt="Ekran görüntüsü 2026-10-16 232856" src="https://github.com/user-attachments/assets/adb82cbb-17c6-44b2-a17b-d80b2b1c65bf" /> <p align="left">
  $\color{#e3613f}{she~ is~ mine!!~~ (✿◕‿◕✿)}$
+
 
 <p align="left">
  $\color{#e3613f}{°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*}$ 
