@@ -21,8 +21,7 @@
 <p align="center">
  $\color{#b94325}{just. Cuddle. me!! and. dont. talk. ım. fine. with. thatꨄ𖹭.ᐟ}$  
 
-<img width="720" height="47" alt="Ekran görüntüsü 2026-11-09 222731" src="https://github.com/user-attachments/assets/f80817ff-1d85-44f3-af75-280b4f7dff3a" /> <p align="center">
- $\color{#b94325}{OMGOMGOMG~~ YESSS~~ TTYTY↑↑↑↑↑↑↑}$
+
 <p align="left">
  <img width="278" height="250" alt="00pompom" src="https://github.com/user-attachments/assets/e68cd35d-9b63-44ad-8e03-bf23f4da1804" /> <img width="290" height="250" alt="Ekran görüntüsü 2026-10-16 232856" src="https://github.com/user-attachments/assets/adb82cbb-17c6-44b2-a17b-d80b2b1c65bf" />  $\color{#e3613f}{the~ other~ women~~ (┬┬﹏┬┬)}$
 
@@ -30,14 +29,6 @@
 
 <p align="left">
  $\color{#e3613f}{°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*}$ 
-
-<p align="left">
-<img width="99" height="56" alt="k15" src="https://github.com/user-attachments/assets/1cba6b13-1276-42ba-a88b-dcccd2e3da9d" /> 
-<img width="99" height="56" alt="d97" src="https://github.com/user-attachments/assets/15079725-d0a2-4fd8-a369-61ab1fd99acf" />
-<img width="99" height="56" alt="f30" src="https://github.com/user-attachments/assets/6c482940-5768-48b8-90a0-66bf37103763" />
-<img width="99" height="56" alt="tumblr_phusl1y0JK1xk82cxo9_100" src="https://github.com/user-attachments/assets/df5f67d2-163f-41eb-9a6b-2a12cd6ab9d3" />
-<img width="99" height="56" alt="tumblr_inline_pe6lbw4Zzw1v11djx_1280" src="https://github.com/user-attachments/assets/eddd1229-2d36-4cd6-af4c-0d89cebd4ef9" />
-<img width="99" height="56" alt="tumblr_ead4b8e42cc6dbe4f10d8c8bb2f1d03a_ec841ab6_100" src="https://github.com/user-attachments/assets/599b7bff-e2bb-483a-8da0-333ccac6dfb6" />
-<img width="99" height="56" alt="r_yoD_KWpLJsM81UChYh" src="https://github.com/user-attachments/assets/f705a1c9-1cfe-4cd0-8df6-8cae1e0caf12" />
-<img width="99" height="60" alt="pompompurin" src="https://github.com/user-attachments/assets/097641d6-8fab-4144-8d49-8e54a54af866" />
+TYYSMMM~~  https://github.com/pt-ship-nominations &~~   https://github.com/pony-town-nominations ~~  FOR~~  INCLUDING~~  Mİİ!!!
+MYlastgoodby3~~ as~~  ponytowns~~  Mipha~~  from~~  The~~  Legend~~  of~~  Zelda:~~  Breath~~  of ~~ the~~  Wild!!!!
 
