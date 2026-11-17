@@ -29,6 +29,7 @@
 
 <p align="left">
  $\color{#e3613f}{°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*}$ 
-TYYSMMM~~  https://github.com/pt-ship-nominations &~~   https://github.com/pony-town-nominations ~~  FOR~~  INCLUDING~~  Mİİ!!!
-MYlastgoodby3~~ as~~  ponytowns~~  Mipha~~  from~~  The~~  Legend~~  of~~  Zelda:~~  Breath~~  of ~~ the~~  Wild!!!!
+
+ TYYSMMM https://github.com/pt-ship-nominations &  https://github.com/pony-town-nominations FOR INCLUDING Mİİ!!!
+MYlastgoodby3 as ponytowns Mipha from The Legend of Zelda: Breath of the Wild!!!!
 
