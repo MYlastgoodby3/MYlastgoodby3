@@ -14,7 +14,7 @@
  $\color{#e3613f}{☆}$ <a href="https://lastgoodby3.atabook.org/">Ata</a>$\color{#e3613f}{✿}$ <a href="https://squid0lvbe3.straw.page">Straw</p 
 
 
-
+<p align="left">
  <img width="290" height="300" alt="Ekran görüntüsü 2026-10-16 232856" src="https://github.com/user-attachments/assets/adb82cbb-17c6-44b2-a17b-d80b2b1c65bf" />  
 
 
