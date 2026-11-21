@@ -12,13 +12,7 @@
 
 <p align="left">
  $\color{#e3613f}{☆}$ <a href="https://lastgoodby3.atabook.org/">Ata</a>$\color{#e3613f}{✿}$ <a href="https://squid0lvbe3.straw.page">Straw</p 
-<p align="center">
- $\color{#b94325}{ı~~LOVE~~cuddling~~random~~people (˶˃𐃷˂˶)}$
 
-
-</p>
-<p align="center">
- $\color{#b94325}{just~~Cuddle~~me!!~~and~~dont~~talk~~ım~~fine~~with~~thatꨄ𖹭.ᐟ}$  
 
 
 <p align="left">
