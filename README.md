@@ -15,7 +15,7 @@
 
 
 
- /> <img width="290" height="250" alt="Ekran görüntüsü 2026-10-16 232856" src="https://github.com/user-attachments/assets/adb82cbb-17c6-44b2-a17b-d80b2b1c65bf" />  
+ <img width="290" height="300" alt="Ekran görüntüsü 2026-10-16 232856" src="https://github.com/user-attachments/assets/adb82cbb-17c6-44b2-a17b-d80b2b1c65bf" />  
 
 
 
